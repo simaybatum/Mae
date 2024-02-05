@@ -1,4 +1,4 @@
 For mon amour :)
 
 Go to website:
-https://simaybatum.github.io/Mae/
+https://thatdeveloperr.github.io/Mae/
